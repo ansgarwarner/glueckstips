@@ -1,1 +1,0 @@
-# glueckstips.github.io
